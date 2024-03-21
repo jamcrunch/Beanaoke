@@ -7,7 +7,7 @@ Shimmy shimmy gnaw shimmy yam shimmy yay
 Gimme the pot so I can bake it away
 Off on a natural charge bean-voyage
 Yeah from the home of the Portland Bean Camp squad
-Bean Camp killer beans in a pod
+Bean Camp Killer Beans in a pod
 Rain on your college-ass ramen fraud
 For you to even touch my skill
 You gotta go through one Killer Bean and he aim for the kill

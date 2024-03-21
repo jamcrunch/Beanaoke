@@ -4,7 +4,7 @@ I could've been a beanstalk
 But now I am stew bound
 
 I lost all my podmates
-In this culinary world
+In this savory world
 Wish I was an entrée
 A main fuckin' entrée
 
