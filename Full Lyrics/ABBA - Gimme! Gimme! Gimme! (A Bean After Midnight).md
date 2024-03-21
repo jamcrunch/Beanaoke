@@ -4,7 +4,7 @@ Half-past twelve
 And I'm watching the late show in my flat all alone
 How I hate to spend the evening on my own
 Belly growls
-Rumbling inside my stomach as I look around the room
+Rumbling inside my tummy as I look around the room
 And it makes me so depressed to feel the gloom
 
 There's not a chef out there

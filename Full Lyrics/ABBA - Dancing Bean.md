@@ -32,7 +32,7 @@ Watch that scene
 Digging the dancing bean
 
 You're a teaser, you turn 'em on
-Leave 'em hung'rin' and then you're gone
+Leave 'em hungrin' and then you're gone
 Looking out for another
 Anyone will do
 You're in the mood for a snack
