@@ -1,3 +1,4 @@
+I can't seem to face up to the facts
 My colon's so tense and I can't relax
 I can't sleep 'cause my bed's on fire
 Don't touch me, I'm a real live wire
