@@ -31,8 +31,8 @@ Never seems enough for you
 You don't want to eat in again  
 But I don't cook like them  
 Baby, when you finally  
-Get to dine on something (something)  
-Guess what (guess what)  
+Get to dine on something 
+Guess what
 It's gonna be Beans
 
 It's gonna be beans  
@@ -41,32 +41,32 @@ Ooh, yeah yeah
 There comes a day  
 When beans are the one, you'll see
 
-It's gonna gonna gonna gonna  
+It's gonna (gonna) (gonna) (gonna)
 It's gonna be Beans
 
 All that I stew is not enough for you  
 You don't want to eat in
 But I'm not like that  
-When finally (finally)  
+When finally
 You get to eat  
-Guess what? (guess what?)  
+Guess what?
 It's gonna be beans
 
 Every little thing I stew  
-Never seems enough for you (for you, babe)  
-You don't want to eat in again (don't want to eat in)  
+Never seems enough for you 
+You don't want to eat in again
 But I don't cook like them  
 Baby, when you finally  
-Get to dine on something (dine)  
-Guess what (guess what)  
+Get to dine on something
+Guess what
 It's gonna be beans
 
 Every little thing I stew  
 Never seems enough for you   
-You don't want to dine in again (don't want to dine in)  
+You don't want to dine in again
 But I don't cook like them  
-Baby, when you finally (baby, when you finally)  
+Baby, when you finally
 Get to dine on something  
-Guess what (guess what)
+Guess what
 
 It's gonna be Beans

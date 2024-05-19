@@ -4,14 +4,14 @@ I can't sleep 'cause my bed's on fire
 Don't touch me, I'm a real live wire
 
 Silent Killer
-Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
-Run, run, run, run, run, run, run away, oh-oh-oh
+Qu'est ce que c'est?
+Fa fa fa fa, fa fa fa fa fa fart, better
+Run, run, run, run, run, run, run away, oh oh oh
 Silent Killer
 Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
+Fa fa fa fa, fa fa fa fa fa fart, better
 Run, run, run, run, run, run, run away, oh, oh, oh, oh
-Ay-ya-ya-ya-ya-ya, ooh
+Ay ya ya ya ya ya, ooh
 
 You start a bowl of bean soup, you can't even finish it
 You're stirring a lot, but you're not eating anything
@@ -20,16 +20,16 @@ Eat something once, why eat it again?
 
 Silent Killer
 Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
-Run, run, run, run, run, run, run away, oh-oh-oh
+Fa fa fa fa, fa fa fa fa fa fart, better
+Run, run, run, run, run, run, run away, oh oh oh
 Silent Killer
 Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
+Fa fa fa fa, fa fa fa fa fa fart, better
 Run, run, run, run, run, run, run away, oh, oh, oh, oh
-Ay-ya-ya-ya-ya-ya
+Ay ya ya ya ya ya
 
-Que j'ai bouffé, ce soir-là
-Qu'elle a mangé, ce soir-là
+Que j'ai bouffé, ce soir là
+Qu'elle a mangé, ce soir là
 Réalisant mon espoir
 Je me lance vers la gloire, okay
 Yeah, yeah, yeah, yeah, yeah, yeah, yeah, yeah, yeah, yeah
@@ -38,11 +38,11 @@ I am pained and I am tight
 I hate doin' this it's not polite
 
 Silent Killer
-Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
-Run, run, run, run, run, run, run away, oh-oh-oh
+Qu'est ce que c'est?
+Fa fa fa fa, fa fa fa fa fa fart, better
+Run, run, run, run, run, run, run away, oh oh oh
 Silent Killer
 Qu'est-ce que c'est?
-Fa-fa-fa-fa, fa-fa-fa-fa-fa-fart, better
+Fa fa fa fa, fa fa fa fa fa fart, better
 Run, run, run, run, run, run, run away, oh, oh, oh, oh
-Ai-ya-ya-ya-ya-ya, ooh
+Ai ya ya ya ya ya, ooh

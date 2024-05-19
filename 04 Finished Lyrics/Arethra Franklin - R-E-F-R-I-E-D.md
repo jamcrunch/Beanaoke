@@ -1,55 +1,111 @@
 Hey, what you want
-(Oo) Baby, I'll fry it 
-(Oo) What you need
-(Oo) Do you know I got it?
-(Oo) All I'm askin'
-(Oo) Is for a little fried beans when you come home (just a little bit)
-Hey baby (just a little bit) when you get home
-(Just a little bit) mister (just a little bit)
 
-I ain't gonna do you wrong while you're gone
-Ain't gonna do you wrong (oo) 'cause I don't wanna (oo)
-All I'm askin' (oo)
-Is for a little fried beans when you come home (just a little bit)
-Baby (just a little bit) when you get home (just a little bit)
-Yeah (just a little bit)
+Baby, I'll fry it
+
+What you need
+
+Do you know I got it?
+
+All I'm askin'
+
+Is for a little fried beans when you come home
+
+Hey baby when you get home
+
+Mister
+
+  
+
+I ain't gonna do you wrong
+
+While you're gone
+
+Ain't gonna do you wrong
+
+'Cause I don't wanna
+
+All I'm askin'
+
+Is for a little fried beans when you come home
+
+Baby, when you get home
+
+Yeah
+
+  
 
 I'm about to give you all of my money
+
 And all I'm askin' in return, honey
+
 Is to give me my fried beans
-When you get home (just a, just a, just a, just a)
-Yeah baby (just a, just a, just a, just a)
-When you get home (just a little bit)
-Yeah (just a little bit) Do it for me now, just a little bit
 
-Ooo, your fried beans (oo)
-Sweeter than honey (oo)
-And guess what? (oo)
-So is my money (oo)
-All I want you to do (oo) for me
-Is give them to me when you get home (re, re, re, re)
-Yeah baby (re, re, re, re)
-Whip 'em to me (respect, just a little bit)
-When you get home, now (just a little bit)
+When you get home
+
+Yeah baby
+
+When you get home
+
+Yeah
+
+Do it for me now, just a little bit
+
+  
+
+Ooo, your fried beans
+
+Sweeter than honey
+
+And guess what?
+
+So is my money
+
+All I want you to do for me
+
+Is give them to me when you get home
+
+Yeah baby
+
+Whip 'em to me
+
+When you get home, now
+
+  
 
 R-E-F-R-I-E-D
+
 Find out what it means to beans
+
 R-E-F-R-I-E-D
+
 Refried, so tasty
 
-Oh (sock it to me, sock it to me
-Sock it to me, sock it to me)
-A little fried beans (sock it to me, sock it to me
-Sock it to me, sock it to me)
-Whoa, babe (just a little bit)
-A little fried beans (just a little bit)
-I get tired (just a little bit)
-Keep on tryin' (just a little bit)
-You're runnin' out of food (just a little bit)
-And I ain't lyin' (just a little bit)
-'spect
-When you come home (re, re, re, re)
-Or you might walk in (respect, just a little bit)
-And find out I'm gone (just a little bit)
-I got to have (just a little bit)
-A little respect (just a little bit)
+  
+
+Oh
+
+A little fried beans
+
+Whoa, babe
+
+A little fried beans
+
+I get tired
+
+Keep on tryin'
+
+You're runnin' out of food
+
+And I ain't lyin
+
+'Fried
+
+When you come home
+
+Or you might walk in
+
+And find out I'm gone
+
+I got to have
+
+A little respect

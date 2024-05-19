@@ -1,5 +1,14 @@
+Movin’ to the country
+Gonna eat a lot of beanses
+
 I’m movin’ to the country
-Gonna eat a lot of beanses (3x)
+Gonna eat a lot of beanses
+
+Movin’ to the country
+Gonna eat a lot of beanses
+
+Movin’ to the country
+Gonna eat a lot of beanses
 
 Beanses come from a can
 They were put there by a man
@@ -8,7 +17,17 @@ If I had my little way
 I’d eat beanses every day
 And scoopin' bowls from the buffet
 
-Chorus
+I’m movin’ to the country
+Gonna eat a lot of beanses
+
+Movin’ to the country
+Gonna eat a lot of beanses
+
+Movin’ to the country
+Gonna eat a lot of beanses
+
+Movin’ to the country
+Gonna eat a lot of beanses
 
 Took a little nap where the beans all sit
 Squished a ladle of beans in my fist
@@ -19,3 +38,18 @@ Nature's candy in my hand or can or a pie
 
 Millions of beanses, beanses for me
 Millions of beanses, beanses for free
+Millions of beanses, beanses for me
+Millions of beanses, beanses for free
+Millions of beanses, beanses for me
+Millions of beanses, beanses for free
+Millions of beanses, beanses for me
+Millions of beanses, beanses for free
+
+Cook out!
+
+Millions of beanses, beanses for me
+Millions of beanses, beanses for free
+Millions of beanses, beanses for me
+Millions of beanses, beanses for free
+
+Cook out!

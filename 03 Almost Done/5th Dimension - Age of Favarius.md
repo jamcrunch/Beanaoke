@@ -32,15 +32,13 @@ Favarius
 Favarius
 Favarius
 
-[Part 2: Let the Sunshine In]
-
 Let the sunshine
 Let the sunshine in
 The sunshine in
 Let the sunshine
 Let the sunshine in
 The sunshine in
-Let the sunshine (oh, let it shine)
+Let the sunshine
 Let the sunshine in (come on)
 The sunshine in (now everybody just sing along)
 Let the sunshine (and let the sun shine on in)

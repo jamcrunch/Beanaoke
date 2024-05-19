@@ -6,9 +6,7 @@ Fryin' away
 Oh, I'll be comin' for your beans, okay
 
 Take on beans  
-(Take on beans)  
 Take beans on  
-(Take on beans)  
 I'll be gone  
 In a day or two
 
@@ -20,9 +18,7 @@ Say after me
 It's much better to be sated than hungry
 
 Take on beans  
-(Take on beans)  
 Take beans on  
-(Take on beans)  
 I'll be gone  
 In a day or two
 
@@ -33,21 +29,8 @@ You're frying' away
 I'll be comin' for your beans okay
 
 Take on beans  
-(Take on beans)  
 Take beans on  
-(Take on beans)  
 I'll be gone  
 In a day  
-(Take on beans)  
-(Take on beans)  
-(Take beans on)  
-(Take on beans)  
 I'll be gone  
-(Take on beans)  
 In a day  
-(Take beans on)  
-(Take on beans)  
-(Take on beans)  
-(Take on beans)  
-(Take beans on)  
-(Take on beans)
