@@ -107,3 +107,78 @@ No, no, no, no, no, no, no
 Bean-elzebub has a devil put aside for me
 For me
 For me
+
+
+Band
+
+Is this the real life?
+
+Is this just bean·ta·sy?
+
+Trad·ed my cow for
+
+abig hand·ful of mag·ic beans
+
+When I a·woke
+
+looked up to the skies to see
+
+Be·cause I'm bea·ny come, bea·ny go,
+
+lit·tle high, lit·tle low
+
+A·ny way the bean grows
+
+Does·n't re·ally mat·ter to me
+
+A·ny·way the bean grows
+
+Sca·ra·mouche, Sca·ra·mouche
+
+Will you do the Fan·dan·go?
+
+Thun·der·bolts and light·ning
+
+Ve·ry, ve·ry fright·ening me
+
+Ga·li·le·o
+
+Ga·li·le·o
+
+Ga·li·le·o Fi·ga·ro, mag·nifi·co
+
+He's just a poor boy from a poor fam·i·ly
+
+Spare him his life from this mon·stros·i·ty
+
+Bis·mil·lah!
+
+No! We will not let you go
+
+Bis·mil·lah!
+
+We will not let you go
+
+Bis·mil·lah!
+
+We will not let you go
+
+Will not let you go
+
+Will not let you go
+
+No, no, no, no, no, no, no
+
+Mam·ma m·ia, let me go
+
+Bean·el·ze·bub has a dev·il put a·side for me
+
+For me
+
+For me
+
+Ooh
+
+Ooh, yeah, ooh, yeah
+
+A·ny way the bean grows
